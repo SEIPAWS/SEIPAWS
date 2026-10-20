@@ -5,7 +5,7 @@
 
 <div align="center">
         
-[ata](https://seii.atabook.org/)ㅤㅤ𓏻ㅤㅤ[listography](https://listography.com/dramaticalmurder)ㅤㅤ𓏻‎ㅤㅤ[rentry](https://rentry.co/togainu-)
+[ata](https://seii.atabook.org/)ㅤㅤㅤㅤㅤㅤ[listography](https://listography.com/dramaticalmurder)ㅤㅤㅤㅤㅤㅤ[rentry](https://rentry.co/togainu-)
 
 <div align="center">
         
