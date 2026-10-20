@@ -4,8 +4,8 @@
 
 <div align="center">
         
-[ata](https://seii.atabook.org/) ‎  𓏻 ‎ ‎  [listography](https://listography.com/dramaticalmurder) ‎  ‎ 𓏻‎ ‎  [rentry](https://rentry.co/togainu-)
+[ata](https://seii.atabook.org/)ㅤㅤ𓏻ㅤㅤ[listography](https://listography.com/dramaticalmurder)ㅤㅤ𓏻‎ㅤㅤ[rentry](https://rentry.co/togainu-)
 
 <div align="center">
         
-[     𖾕𖾝꙼ᩚ𛲕𖾟   ∧︵∧  ꠹   　](https://rentry.co/catboymink)
+[ ㅤㅤ ∧︵∧  ꠹　](https://rentry.co/catboymink)
